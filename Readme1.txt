@@ -34,3 +34,17 @@ No HOTLINKING is allowed i.e. you cannot make a direct link to the download or/a
 
 Concerning blog posts, you are free to link to it from any website, 
 but you cannot however publish it as it is, without prior consent from http://bootstrapthemes.co
+
+
+
+
+
+
+
+
+
+
+
+hiiiii
+hello
+byeeeee
